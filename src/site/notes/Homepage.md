@@ -8,7 +8,7 @@ Generella guidelines:
 - Backstories kommer att vara relevanta (Se *Backstories*)
 - Ni kommer att få ett magic item var (Se *Items*)
 - Inga onda karaktärer. För att storyn ska gå ihop måste ni ha ett intresse för allmänheten. Man kan vara självisk, shady eller lite smått kaosartad. Men inte ond.
-- Eftersom jag planerar att försöka knyta in ett litet överlevnads element i spelet kommer spells och andra features som ger er garanterad tillgång till mat inte vara tillåtna. Exempel på detta skulle vara spells som *Goodberry* och *Create Food and Water*. Samt *Wanderer* feature som man får om man har valt *Outlander* background.
+- Eftersom jag planerar att försöka knyta in ett litet överlevnads element i spelet kommer spells och andra features som ger er garanterad tillgång till mat inte vara tillåtna. Exempel på detta skulle vara spells som *Goodberry* och *Create Food and Water*. Samt *Wanderer* feature som man får om man har valt *Outlander* background. 
 ## Backstories
 
 I detta spelet har jag som ambition att knyta in allas backstory på något sätt. Ni lär inte få utdragna story delar som tar plats över flera sessioner, det finns bara inte plats för i ett spel i den längden jag planerar. Tanken är att ni kanske får var sin sidequest eller sub-plot som hör till er backstory. Väljer att inte gå in på det så mycket än. Dels för att jag inte har spikat alla detaljer och dels för att jag inte har backstories att jobba med än. 
