@@ -2,5 +2,6 @@
 {"dg-publish":true,"permalink":"/sylvari-homebrew-ras/"}
 ---
 
-![[Sylvari.pdf]]
-![Sylvari.jpg|500](/img/user/Sylvari.jpg)
+
+
+![Sylvari.jpg|100%](/img/user/Sylvari.jpg)
