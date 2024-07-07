@@ -3,4 +3,4 @@
 ---
 
 ![[Sylvari.pdf]]
-![Sylvari.jpg](/img/user/Sylvari.jpg)
+![Sylvari.jpg|500](/img/user/Sylvari.jpg)
