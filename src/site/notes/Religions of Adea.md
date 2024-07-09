@@ -15,7 +15,7 @@ The nature of the Eidolons make them poor options for a cleric’s worship in co
   
 Sometimes the Eidolons have been known to interact with certain individuals. The way this happens depends on the specific Eidolon and its personality. Some claim to have heard whispers out of nowhere, others say they saw spirits leading them toward their goal. Some simply felt the sudden urge to take a left turn and happened upon some beneficial situation or other. These are rare occurrences  
 
-### Duality
+## Duality
 The Eidolon called Duality is the world force that ensures there are always two sides to all things. An act that harms one person is often beneficial to another and vice versa. Duality is entirely neutral and unbiased, it takes no sides. The Eidolon itself influences luck and chance so that no one individual is exceptionally lucky or unlucky throughout their lives. 
 
 *Iconography*: A featureless face with glowing eyes. The right side of the face is wreathed in flames and the left is frozen over with ice.  
