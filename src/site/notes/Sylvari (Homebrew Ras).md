@@ -4,4 +4,4 @@
 
 
 
-![Sylvari.jpg|125%](/img/user/Sylvari.jpg)
+![Sylvari.jpg|100%](/img/user/Sylvari.jpg)
