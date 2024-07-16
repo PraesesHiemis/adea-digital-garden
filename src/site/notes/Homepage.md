@@ -5,6 +5,8 @@
 >Generella guidelines:
 >- Allt publicerat material är tillåtet. Är ni intresserade av homebrew material skicka det till mig så jag kan läsa igenom. 
 >- Ni kommer att börja på level 8, stats genom point buy precis som sist. Hemsida för att räkna ut stats här: https://chicken-dinner.com/5e/5e-point-buy.html 
+>- När ni rullar för hitpoints finns det ett "reroll värde" för varje tärnings storlek. Om du rullar den siffran eller lägre får du rulla om tärningen. Värdena följer: 
+    D6 = 1 | D8 = 1-2 | D10 = 1-3 | D12 = 1-4 
 >- Backstories kommer att vara relevanta (Se *Backstories*)
 >- Ni kommer att få ett magic item var (Se *Items*)
 >- Inga onda karaktärer. För att storyn ska gå ihop måste ni ha ett intresse för allmänheten. Man kan vara självisk, shady eller lite smått kaosartad. Men inte ond.
