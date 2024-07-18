@@ -9,7 +9,7 @@
     D6 = 1 | D8 = 1-2 | D10 = 1-3 | D12 = 1-4 
 >- Backstories kommer att vara relevanta (Se *Backstories*)
 >- Ni kommer att få ett magic item var (Se *Items*)
->- Inga onda karaktärer. För att storyn ska gå ihop måste ni ha ett intresse för allmänheten. Man kan vara självisk, shady eller lite smått kaosartad. Men inte ond.
+>- Inga onda karaktärer. För att storyn ska gå ihop måste ni ha ett intresse för allmänheten. Man kan vara självisk, shady eller kaosartad. Men inte ond.
 >- Eftersom jag planerar att försöka knyta in ett litet överlevnads element i spelet kommer spells och andra features som ger er garanterad tillgång till mat inte vara tillåtna. Exempel på detta skulle vara spells som *Goodberry* och *Create Food and Water*. Samt *Wanderer* feature som man får om man har valt *Outlander* background. 
 ## Backstories
 
