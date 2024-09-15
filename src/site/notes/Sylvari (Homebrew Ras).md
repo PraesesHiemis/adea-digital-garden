@@ -4,7 +4,7 @@
 
 More info below:
 
-![Sylvari.jpg|100%](/img/user/Sylvari.jpg)
+![Sylvari.jpg|100%](/img/user/Files/Sylvari.jpg)
 
 
 #### Additional Information:  
