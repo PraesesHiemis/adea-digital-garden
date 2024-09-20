@@ -37,7 +37,7 @@ A spirit of light and warmth. Sometimes it appears to people who are lost in the
 
 You might have heard the whistling of the wind sound or waves crashing in a rhythmic beat. That is more often than not the influence of Hymn. It often reveals itself to bards, inspiring them to create or harmonize.  
   
-*Iconography*: 
+*Iconography*: A musical note forming the outline of a lute.
 
 #### Mania
 
