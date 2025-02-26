@@ -10,7 +10,7 @@ The main housing structure in the city consists of apartment buildings. Most of 
 
 The harbour is one of the most active parts of the city. Since Rover has well established trading lines with other nations there are often plenty of fishermen and traders who stay the night. You're likely to see a new face in the harbour area every day.
 
-Strict laws and harsh punishments makes crime rates quite low in the city compared to other cities. Crime is by no means eradicated. There are large underground gangs that are skilled enough to remain under the radar of the city’s Sentinels and Investigators alike. 
+Strict laws and harsh punishments makes crime rates quite low compared to other cities. But crime is by no means eradicated. There are large underground gangs that are skilled enough to remain under the radar of the city’s Sentinels and Investigators alike. 
 
 ![Rover_Concept.jpg|100%](/img/user/Files/Rover_Concept.jpg)
 
