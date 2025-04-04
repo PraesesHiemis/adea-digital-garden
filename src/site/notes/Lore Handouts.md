@@ -9,6 +9,7 @@ Vi teoretiserar att den i samband med att den rev genom undermarken, då den ska
 
 Baserat på ett fåtal exkursioner tror vi att Vol’Maroth befinner sig under marken som sin skapare gjorde en gång i tiden. Det finns vägar som leder djupt ner i bergen i den norra delen av djungeln. Men efter att vi har varit där och undersökt har fasansfulla monster börjat hålla vakt. Vi har inte vågat oss tillbaka på grund av det. Varelserna verkar styras av någon sorts kollektivt medvetande, till vilket Vol’Maroth måste ligga till grund. Det enda sättet att göra djungeln säkrare igen är att bli av med sinnet bakom dem.
 
+
 #### Djungel anden, en folksägen eller ett helgon?
 Legender och sagor har talat om en ande som ska ha inflytande över livet i djungeln. Växter kan gro på platser de normalt skulle dö ut, på de torra bergstopparna som vetter åt öknen och på de skuggiga platserna dit solen aldrig når. Med hennes inflytande ska träd kunna gå från ett frö till fullvuxna på ett fåtal timmar. Livet i djungeln anser vissa ha uppkommit från denna naturliga väktare, Andelise.  
   
