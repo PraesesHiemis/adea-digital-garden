@@ -40,7 +40,7 @@ Ni beslutade att ni skulle börja bege er mot byn i den östra utkanten av djung
 
 
 ## Session 5 - 25 Januari
-Bob Figaro
+-Bob Figaro
 
 ## Session 6 - 10 Februari 
 Djungeln börjar ta på allas krafter och energier. Tröttheten förstör oss inifrån, jag kan se det på allas blickar. Även om alla gömmer det på sina egna sätt. Yrla verkar leta efter ett romantiskt ljus i vår hemska färd. Ishas hårda fasad börjar knäckas, även om hon inte själv hade erkänt det. Och Bob-Figaro försvinner in i prosa och dikt för att distrahera sig. Men resan verkar ta på Vampador mest, han har varit ännu mer mentallt distanserad det senaste dygnet än normalt. Kanske är det oron för sin dotter som har tagit honom fullständigt, eller någon obarmhärtig prestationsångest. Jag tror inte att Vampador har varit mentalt närvarande för en enda sak som har hänt idag, det är inte min plats att kommentera på det men jag blir oroad. Kanske ska jag skriva en lapp för att hjälpa honom komma ihåg. 
@@ -60,4 +60,8 @@ Amaryllis, den andra Sylvarin i byn, hade, likt Canach, blivit förförd av djun
 -
 
 ## Session 8 - 24 Februari
--
+-Yrla
+
+## Session 9 - 29 Mars
+-Isha
+
