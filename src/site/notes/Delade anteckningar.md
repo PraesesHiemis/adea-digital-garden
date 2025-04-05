@@ -69,6 +69,6 @@ En sak I taget, jag behöver spår av al Zakahara's magi för att Adolin ska kun
 
 Ja, när Dampador har löst problemen med sin klan det vill säja. Så det bär västerut, till drakberget där Lima verkar vara I fara. Med hjälp av min bottenlösa charm delar jag och Yrla kanot med Dager, för att han är måttlingt stark men mest för att 3 dagar I en kanot med Vampador låter som mitt personliga helvete. Dager verkar gärna vela ro helt själv medas Yrla och jag dukar upp för piknik för två så förutom av att jag blev skvättad av lite vatten ett par gånger var resan relativt smärtfri. Det dröjer inte lång tid försen den monstuösa huggdraken blåttas över bergstopparna men innan vi börjar den långa vandringen upp för bergskanten skymtar vi ett gäng orcher I en skogsmynning. Ett gäng orcher som Dager verkar näst intill skräckslagen av att se. På grund av hans usla fotfäste går det inte lång tid innan han trillar ut ur buskaget rätt framför näsan på dem. Men vad är detta? De verkar känna varandra, och Dager kallar den större orchen för… pappa? Denna historia bara måste jag höra. Men han få ta den påvägen norrut, för jag har bråttom! 
 
-När jag sätter klorna I Ali al Zakhara finns det ingen gud på detta plan och det näste som kan benåda honomtill en kvick död, det svär jag på de hundra tusentals gravar som täcker Deavastana idag. 
+När jag sätter klorna I Ali al Zakhara finns det ingen gud på detta plan och det näste som kan benåda honom till en kvick död, det svär jag på de hundra tusentals gravar som täcker Deavastana idag. 
 -med blixtar och dunder, Isha.
 
