@@ -63,5 +63,12 @@ Amaryllis, den andra Sylvarin i byn, hade, likt Canach, blivit förförd av djun
 -Yrla
 
 ## Session 9 - 29 Mars
--Isha
+Den usle jordlöparen är vid liv, jag var naïve nog att tro att gudarna benådade mig den dagen, att åskan äntligen kommit för att förgöra de som använt mig och bryta mina kedjor. Men I själva verket gjorde de mig till åtlöje, lekte med mig när jag behövde dom mest. Jo, Adolyn är definitivt denna AD som jag sökt och om vad han säjer är sant, om han kan ogöra magin som bundit mig till ringen, något jag aldrig kunnat tro var möjligt, kan jag ha en chans. 
+
+En sak I taget, jag behöver spår av al Zakahara's magi för att Adolin ska kunna fortsätta, och det finns bara ett ställe på detta dödliga plan han hade kunnat finnas. Jordriket är en ödslig plats, antingen öken så långt ögat kan nå eller karga berg utan spår av grönska. Öknen söder om Navarre har sedan jag kom hit gätt mig kalla kårar, jag hade trott att det mest var en kvarstående PTSD från min tid I jordriktet men nu vet jag utan tvekan att det var mer än så. Ödet leder mig nordväst och nordväst ska jag. 
+
+Ja, när Dampador har löst problemen med sin klan det vill säja. Så det bär västerut, till drakberget där Lima verkar vara I fara. Med hjälp av min bottenlösa charm delar jag och Yrla kanot med Dager, för att han är måttlingt stark men mest för att 3 dagar I en kanot med Vampador låter som mitt personliga helvete. Dager verkar gärna vela ro helt själv medas Yrla och jag dukar upp för piknik för två så förutom av att jag blev skvättad av lite vatten ett par gånger var resan relativt smärtfri. Det dröjer inte lång tid försen den monstuösa huggdraken blåttas över bergstopparna men innan vi börjar den långa vandringen upp för bergskanten skymtar vi ett gäng orcher I en skogsmynning. Ett gäng orcher som Dager verkar näst intill skräckslagen av att se. På grund av hans usla fotfäste går det inte lång tid innan han trillar ut ur buskaget rätt framför näsan på dem. Men vad är detta? De verkar känna varandra, och Dager kallar den större orchen för… pappa? Denna historia bara måste jag höra. Men han få ta den påvägen norrut, för jag har bråttom! 
+
+När jag sätter klorna I Ali al Zakhara finns det ingen gud på detta plan och det näste som kan benåda honomtill en kvick död, det svär jag på de hundra tusentals gravar som täcker Deavastana idag. 
+-med blixtar och dunder, Isha.
 
