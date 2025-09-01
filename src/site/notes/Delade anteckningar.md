@@ -39,10 +39,10 @@ Efter en hård landning bland stora djungelträd och buskage lyckades ni samla i
 Ni beslutade att ni skulle börja bege er mot byn i den östra utkanten av djungeln. Eftersom de skadade soldaterna och matroserna inte skulle kunna hålla samma tempo som er i nuläget kommer de att följa efter i långsammare takt. Nolan och Mirage kommer att stanna med dem och leda dem.
 
 
-## Session 5 - 25 Januari
+## Session 5 - 25 Januari 2025
 -Bob Figaro
 
-## Session 6 - 10 Februari 
+## Session 6 - 10 Februari 2025
 Djungeln börjar ta på allas krafter och energier. Tröttheten förstör oss inifrån, jag kan se det på allas blickar. Även om alla gömmer det på sina egna sätt. Yrla verkar leta efter ett romantiskt ljus i vår hemska färd. Ishas hårda fasad börjar knäckas, även om hon inte själv hade erkänt det. Och Bob-Figaro försvinner in i prosa och dikt för att distrahera sig. Men resan verkar ta på Vampador mest, han har varit ännu mer mentallt distanserad det senaste dygnet än normalt. Kanske är det oron för sin dotter som har tagit honom fullständigt, eller någon obarmhärtig prestationsångest. Jag tror inte att Vampador har varit mentalt närvarande för en enda sak som har hänt idag, det är inte min plats att kommentera på det men jag blir oroad. Kanske ska jag skriva en lapp för att hjälpa honom komma ihåg. 
 
 Hej Vampador, jag skriver detta brev för att jag trots allt bryr mig om dig, och förstår att vår resa kan vara stressande för dig. Här har du en punktlista på de händelser som du verkar ha missat de senaste 24 timmarna. - Dager Efter en kväll av tungt drickande verkar Yrla äntligen ha gjort sin kärleksförklaring till Nolan via den magiska stenen. Vissa kanske tycker att man borde ta sådana viktiga saker ansikte till ansikte, men alkoholen kan tala för en ibland. Tydligen ska de prata om allt när Nolan anländer till byn om några dagar.
@@ -56,13 +56,13 @@ Amaryllis, den andra Sylvarin i byn, hade, likt Canach, blivit förförd av djun
 Åtminstone, efter att vi hade pratat vidare med alla i byn så bestämde vi oss för att resa söderut. En hjälpsam Firbolg, kallad Galgus, erbjöd sig att teleportera oss till Provincia genom att öppna upp en portal i ett träd. Fråga mig inte hur det funkar, häxkonst är fortfarande inte för mig. Åtminstone, väl vid Principia hittade vi några smärre byggnader med en enorm borg i mitten. Djupgnomer bor under marken, i Underjorden, och vi misstänkte att borgen med sina stängda dörrar markerade en väg ner i underjorden. Med dörrarna öppna, stod vi inför en mörk nedgång - och med hemligheterna av Provincia snart framför oss.
    -*Dager Dromm*
 
-## Session 7 - 17 Februari
+## Session 7 - 17 Februari 2025
 -
 
-## Session 8 - 24 Februari
+## Session 8 - 24 Februari 2025
 -Yrla
 
-## Session 9 - 29 Mars
+## Session 9 - 29 Mars 2025
 Den usle jordlöparen är vid liv, jag var naïve nog att tro att gudarna benådade mig den dagen, att åskan äntligen kommit för att förgöra de som använt mig och bryta mina kedjor. Men I själva verket gjorde de mig till åtlöje, lekte med mig när jag behövde dom mest. Jo, Adolyn är definitivt denna AD som jag sökt och om vad han säjer är sant, om han kan ogöra magin som bundit mig till ringen, något jag aldrig kunnat tro var möjligt, kan jag ha en chans. 
 
 En sak I taget, jag behöver spår av al Zakahara's magi för att Adolin ska kunna fortsätta, och det finns bara ett ställe på detta dödliga plan han hade kunnat finnas. Jordriket är en ödslig plats, antingen öken så långt ögat kan nå eller karga berg utan spår av grönska. Öknen söder om Navarre har sedan jag kom hit gätt mig kalla kårar, jag hade trott att det mest var en kvarstående PTSD från min tid I jordriktet men nu vet jag utan tvekan att det var mer än så. Ödet leder mig nordväst och nordväst ska jag. 
@@ -72,3 +72,16 @@ Ja, när Dampador har löst problemen med sin klan det vill säja. Så det bär 
 När jag sätter klorna I Ali al Zakhara finns det ingen gud på detta plan och det näste som kan benåda honom till en kvick död, det svär jag på de hundra tusentals gravar som täcker Deavastana idag. 
 -med blixtar och dunder, Isha.
 
+## Session 10 - 5 April 2025
+Mycket har hänt de senaste dagarna. Familj har återförenats på många fronter och monster har besegrats. Efter att ha begett oss söderut till det kluvna berget (Är det faktiskt kluvet eller är det bara två berg på kartan?) fann vi oss anföllna av min fader och Krogg den Tre-ögde. Vi besegrade dem i vacker strid, även om Krogg, lurig som alltid, försökte fuska med sin mörka skogsmagi. Jag hatar magi. 
+
+Efter att Krogg föll återförenades jag med min fader, som berättade att han spenderat det senaste året som en knäckt slav till Krogg. Tillsammans med resten av Skarås klanen, där flera av mina före-detta klanmedlemmar verkar ha blivit samma monster som Krogg, attackerade de Chinoko staden och tog Lima. Som tur var Lima vid liv, och Vampador kunde återförenas med henne efter en snabb konflikt med huggtandsdraken. Vi bestämde oss efter mycket käftande och en natts vila att bege oss österut för att hitta fler från Vampadors stam och låta draken var. Ett beslut utan tvekan, men jag ger mig. En ny dag står framför oss, och med nya kunskaper och förmågor börjar vår march.
+-Dager Dromm
+
+## Session 11 - 5 Maj 2025
+Inträngda i en liten grotta på en klippavsats i berget till söder satt en grupp äventyrare och planerade sin flykt från den evigt vakande grå-draken. Draken, som har legat på lur ända sedan gruppen började bestiga berget, var redo att anfalla så fort de visade sig. De behövde hitta ett sätt att distrahera Draken. En av gruppmedlemmarna, ett uråldrigt andeväsen, frammanade en illusion för att lura bort draken och ge gruppen ett litet försprång ned mot säkerheten bland de tjocka trädstammarna i djungeln. Draken var snart ikapp dem men de slapp undan och lyckades gömma sig under jord och mark.
+
+När draken var tvungen att medge sin förlust och flyga iväg kunde äventyrarna fortsätta på sin färd. Det sägs att de stötte på förhistoriska varelser och hörde ljud från djungelns många farliga varelser färdas med vinden. När de närmade sig slutet av sin färd, och därmed snart hade återfört det gudomliga präst barnet till sitt folk, ska de ha stött på en mäktig jord ande som hade historia med vind anden i gruppen. Han var där för de hade något som han eftersökte, vad vet vi inte. Men han kom inte tomhänt utan hade tagit storm magikerns familj tillfånga och försökte använda dem som utpressning mot gruppen. Gruppen lyckades nätt och jämnt ta sig ur situationen men jord anden lyckades fly med en av sina gisslan. 
+
+Med ett brådskande nyfunnet mål genomförde de sin färd mot de mystiska djungel dvärgarnas tillhåll och sedan vidare mot öknen på andra sidan bergskedjan. Mot ett torn de hoppades att han skulle befinna sig.
+-Utdrag från sagobok, 1013 PFM
