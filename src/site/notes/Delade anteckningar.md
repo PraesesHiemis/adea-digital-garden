@@ -40,6 +40,17 @@ Ni beslutade att ni skulle börja bege er mot byn i den östra utkanten av djung
 
 
 ## Session 5 - 25 Januari 2025
+Dag 1: hej dagbok, idag började vi våran färd från lägret bort mot ddn lilla byn bortom älven. På vägen stötte vi på en gigantisk slingrande växt. Jag misstänker att den var köttätare men han inte inspektera saken närmare innan vampador med lust och skicklighet slaktade plantan och pressade dess innnanmäte till en härlig juice. 
+
+Dag 2: Vandringen fortsatte idag. Mina ben värker efter gårdagen, och min enda matranson börjar kännas för lätt i väskan. Jag hoppas verkligen att vi hittar lite mat och ett varmt ställe att slå läger på snart. 
+
+Dag 3: jag har redan tappat det. Det känns som att det är något i skogen som håller ett öga på oss. Dagarna börjar flyta ihop det ända som håller mig förankrad är skrivandet. Jag har börjat på en dikt. 
+
+Dag 5: Jag har även funnit en vän. Han är mycket vänlig men har ett litet rubbat sinne. Gruppen döpte honom till Barkus 
+
+Dag7: Idag kom vi äntligen fram till havet. Som en polstjärna har vampador guidat oss genom djungel ut till klipporna. Vi lyckades ta oss över floden och har slått läger vid strandkanten. Dager gjorde ett tafatt försök att fånga fisk, men som tur var har vampador ännu en gång räddat gruppen genom att servera en brakmåltid av kiwi med kiwi. Och jag har fler glada nyheter! Våra vänner lyckades signalera att dom har hittat någon slags belägring vid platsen där den gråa draken försvann. 
+
+Dag 9: Hej kära dagbok, jag skriver detta från staden. Ursäkta att jag inte har skrivit på ett tag. Det har hänt så mycket. Vi har äntligen nått vårt mål, och vem hade kunnat tro att staden skulle vara så trevlig? Alla är extremt vänliga... kanske lite för vänliga. Jag vet inte om det bara är skuggan från djungelns trätoppar som skymmer mitt hjärta, men något känns skumt. Men nog om det! Partyt är bumpande, alla ser fantastiska ut, och alkoholen flödar. Särskilt för Dager, som gör sitt bästa för att agera wingman för yrla, med varierande framgång. Jag hoppas att det går vägen. Kärleken är verkligen fin ändå. Så nu sitter jag här vid strandkanten och ritar hjärtan i sandenmedan jag skriver de sista raderna på min dikt. Ditt eldiga hår väller som flammor över dina krämiga lår. Åh denna syn jag åtrår, som kaffe med påtår
 -Bob Figaro
 
 ## Session 6 - 10 Februari 2025
@@ -85,3 +96,5 @@ När draken var tvungen att medge sin förlust och flyga iväg kunde äventyrarn
 
 Med ett brådskande nyfunnet mål genomförde de sin färd mot de mystiska djungel dvärgarnas tillhåll och sedan vidare mot öknen på andra sidan bergskedjan. Mot ett torn de hoppades att han skulle befinna sig.
 -Utdrag från sagobok, 1013 PFM
+
+## Session 12 - 4 September 2025
